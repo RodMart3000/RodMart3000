@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @RodMart3000
+- 🌱 I’m currently a university student 
+- 💞️ I’m looking to collaborate in translation of HOI 4 game files :D
+- 📫 How to reach me rodrigo_18_martinez@hotmail.com
